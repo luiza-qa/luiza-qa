@@ -26,5 +26,5 @@
 ---
 
 ### 📫 Vamos nos conectar?
-- **Email:** [kahluizaqa@gmail.com]
+- **Email:** kahluizaqa@gmail.com
 - **LinkedIn:** [Link do seu perfil]
